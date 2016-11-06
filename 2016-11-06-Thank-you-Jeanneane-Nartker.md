@@ -1,14 +1,14 @@
 ---
 title: Thank you Jeanneane Nartker
 layout: post
-author: 32bpwr3
+author: Claire Bunker
 permalink: /thank-you-jeanneane-nartker/
 source-id: 1-jtTcSjOo4T1zg4DKG4cw5cf5OUsPVVEsSQc8Zp9zrw
 published: true
 ---
 Thank you Jeanneane Nartker
 
-Superintendent Claire Bunker:
+
 
 I just want to give a community shout out and huge THANK YOU to Jeanneane Wood-Nartker for her work on making The Play Zone a reality. To put it simply Jeanneane believed in this project and would not give up until it happened.
 
